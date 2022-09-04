@@ -1,0 +1,1 @@
+https://managewp.com/troubleshooting/general/managewp-ips-can-white-list
